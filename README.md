@@ -1,0 +1,2 @@
+Dans les profondeurs de la Ruche Golgotha, loin des spires réservées aux puissants, commence votre histoire. Votre gang ne possède presque rien : quelques armes, un territoire misérable et une réputation encore à construire.
+ Entre guerres de gangs, trafics, vieilles rancunes et secrets enfouis dans les niveaux abandonnés, vos choix décideront si votre nom disparaîtra dans l’obscurité... ou deviendra une légende de Golgotha.
